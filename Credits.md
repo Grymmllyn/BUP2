@@ -1,0 +1,4 @@
+--CREDITS--
+-This content includes soundtrack made by Running W/Scissors from Postal 2
+-This content includes soundtrack made by uglyburger0 from SCP: 3008
+-This content includes soundtrack made by Jacek 'Fragik' Rogal from SCP: Secret Laboratory
